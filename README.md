@@ -35,5 +35,3 @@ Thanks to [Kiddion](https://www.unknowncheats.me/forum/members/1861563.html) for
 
 ## Disclaimer
 I hold no responsibility for any damages caused. Use at your own risk!
-
-
